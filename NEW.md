@@ -1,2 +1,0 @@
-Vertyshka GAZMANOVA
-
